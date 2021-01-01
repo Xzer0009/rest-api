@@ -6,6 +6,7 @@ Github:https://github.com/pakforlay/personal-api
 Yutube:https://youtube.com/channel/UCRgc7uh-iMB2tC8zq7aIgVg
 🌟Don't forget to subscribe to the author's channel🌟
 
-Thaks To👋
-1.Arugaz
-2.MhankBarBar
+Thaks Too👋
+1.Allah SWT
+2.Arugaz
+3.MhankBarBar
